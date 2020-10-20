@@ -3,4 +3,4 @@
 
 *Bow Down to Queen Pei*
 
-How are you, my people.
+How are you, my sharp people.
